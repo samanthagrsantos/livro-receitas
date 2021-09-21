@@ -1,4 +1,3 @@
-<<<<<<< HEAD
 # Tofu à Milanesa
 
 ### Ingredientes
