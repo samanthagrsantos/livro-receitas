@@ -2,4 +2,6 @@
 
 Olá! Bem vindo ao meu livro de receitas :wave:
 
-- Strogonoff de carne de soja
+- Strogonoff de carne de soja;
+- Tofu à milanesa.
+

@@ -5,8 +5,8 @@
  - 150g de soja texturizada grossa; 
  - 1 lata de creme de leite;
  - 50ml de molho de tomate;
- - 1 colher de sopa de ketchup;
- - 1 colher de sopa de mostarda;
+ - 1 colher (sopa) de ketchup;
+ - 1 colher (sopa) de mostarda;
  - Molho de soja a gosto;
  - Sal a gosto;
  - Pimenta a gosto;
