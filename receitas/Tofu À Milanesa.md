@@ -33,5 +33,5 @@
 
 *OBS.: Quanto mais grossas as fatias do tofu, mais tempo este terá de ficar no tempero para pegar o gosto. Deixamos o tofu por 40 minutos na marinada. 
 
-Dica: Caso prefira não comer frituras, há a alternativa de fazer na frigideira, chapeado. Basta adicionar um pouco de azeite, alho e cebola e deixar refogar um pouco antes de adicionar o tofu.
+Dica: Caso prefira não comer frituras, há a alternativa de fazer na frigideira, chapeado. Basta adicionar um pouco de azeite, alho e cebola. Deixe refogar um pouco antes de adicionar o tofu.
 
